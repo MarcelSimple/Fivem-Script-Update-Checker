@@ -4,5 +4,5 @@ Checkt welche Version dein Script hat und vergleicht sie mit der neuesten Versio
 
 Hast du fragen Meld dich doch einfach und ich helfe so gut ich kann.
 
-Discord Invite: https://discord.gg/rHGBkKwXQT
+Discord Invite: https://discord.gg/Xv8UynvgZp
 Discord: Marcel#8188
